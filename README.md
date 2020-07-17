@@ -1,0 +1,2 @@
+# gamsuit
+batu gunting kertas
